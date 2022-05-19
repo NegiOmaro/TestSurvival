@@ -54,4 +54,4 @@ This policy is effective as of 2021-01-06
 
 Contact Us
 
-If you have any questions or suggestions about my Privacy Policy, do not hesitate to contact me at ageev.k.oo@gmail.com. 
+If you have any questions or suggestions about my Privacy Policy, do not hesitate to contact me at negi_omaro@vk.com
